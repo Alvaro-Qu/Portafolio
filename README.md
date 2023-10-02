@@ -7,9 +7,11 @@ Soy una persona que se esfuerza en todo momento. Tengo facilidad para trabajar t
 
 
 CV
-
+Aqui mi link --> 
 
 Herramientas
+
+
 
 Skills
 
